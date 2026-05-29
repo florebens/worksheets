@@ -6,11 +6,10 @@ A growing open-source collection of practices, exercises, and protocols for the 
 
 ## Library
 
-- 🚀 **Work of Merkaba (WoM)** (coming soon)
-- 🤯 **Creative Framework** (coming soon)
-- 🪷 **Deep Healing** (coming soon)
-- 💎 **The Crystalline Path** (coming soon)
-
+- 🌎 **New Earth** - *Spiritual Transhumanism & Evolutionary Technology*
+- 🪷 **Deep Healing** - *Restore, Expand & Activate the Human Machine*
+- 💎 **Merkaba & Crystalline Body** - *Ascended Masters, Bodhisattvas & the Christ Consciousness*
+  
 ## License
 
 This work is licensed under [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/)
