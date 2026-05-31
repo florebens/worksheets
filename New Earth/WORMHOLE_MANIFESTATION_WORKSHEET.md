@@ -1,18 +1,20 @@
-# WORMHOLE MANIFESTATION WORKSHEET —  HERENOW AS AN ANCHOR 
+# WORMHOLE MANIFESTATION WORKSHEET  
+## HERENOW AS AN ANCHOR 
 
 ---
 
-## MOMENT 1 — VISUALIZATION
+## 1. ANCHORING THE HERENOW IN THE BODY
 
 **What if you considered your HereNow as intentional, rather than an obstacle?**
 
-Close your eyes. Breathe. Let the question resonate without answering it just yet.
+Imagine your current situation not as a mistake, not as a delay, not as a punishment, but as a **chosen coordinate**. As if something in you, deeper than your conscious mind, had arranged exactly this starting point.
 
-Imagine your current situation — not as a mistake, not as a delay, not as a punishment — but as a chosen coordinate. As if something in you, deeper than your conscious mind, had arranged exactly this starting point.
-
-What changes in your body when you perceive it this way?
+What **changes in your body** when you perceive it this way?
 What information appears that was previously hidden by resistance?
 What assets, resources, or learnings does this moment contain that you hadn't recognized?
+What is right there to access, to modify, to purge, to approach, to perfect or to beautify?
+
+Consider HereNow a big *Yes, And* moment. It is but the starting point of a new journey, a sidequest or even a chapter. Build on what is, leave be what seems fixed at the moment, work around it. Be resourceful, use your street smart. The Field loooves a crafty soul!
 
 *Write down what came up:*
 
@@ -24,13 +26,13 @@ What assets, resources, or learnings does this moment contain that you hadn't re
 
 ---
 
-## MOMENT 2 — SOMATIC EXERCISE: THE QUADRANT
+## 2. SOMATIC EXERCISE: THE QUADRANT
 
 **What is the shortest distance between your HereNow and your ThereNow?**
 
 ### PREPARING THE MAP
 
-Draw a cross on the floor or on paper. Four cardinal points: North, South, East, West.
+Produce a cross on the floor, within a ritual space, placing objects on the four cardinal points: North, South, East, West.
 
 Charge each point with a possible answer or solution that you can think of. Ask your guides for assistance.
 
@@ -46,11 +48,11 @@ Charge each point with a possible answer or solution that you can think of. Ask 
 
 ### THE EXERCISE
 
-Stand in the center of the cross. Close your eyes. Breathe until you feel the body still and present.
+Stand in the center of the cross. Close your eyes. Breathe until you feel the energy shift in your body, let it be operated by your Higher Self.
 
 Bring your ThereNow to mind — don't analyze it, just feel it. Let the body orient itself. The body is the pendulum.
 
-Open your eyes. Where did you go?
+Open your eyes. Where did you go first? Go through the 4 stations and feel the energy, the vibe, the messages.
 
 *Cardinal point your body oriented toward:* \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -74,7 +76,7 @@ Open your eyes. Where did you go?
 
 ---
 
-## MOMENT 3 — ACTIVATION
+## 3  ACTIVATION
 
 **What concrete steps, conversations, small actions can you take right now to activate the wormhole?**
 
