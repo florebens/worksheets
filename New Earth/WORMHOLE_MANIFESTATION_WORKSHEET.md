@@ -1,10 +1,10 @@
-# WORMHOLE MANIFESTATION WORKSHEET — MODULE: HERE NOW AS AN ASSET
+# WORMHOLE MANIFESTATION WORKSHEET —  HERENOW AS AN ANCHOR 
 
 ---
 
 ## MOMENT 1 — VISUALIZATION
 
-**What if you considered your Here Now as intentional, rather than an obstacle?**
+**What if you considered your HereNow as intentional, rather than an obstacle?**
 
 Close your eyes. Breathe. Let the question resonate without answering it just yet.
 
@@ -26,13 +26,13 @@ What assets, resources, or learnings does this moment contain that you hadn't re
 
 ## MOMENT 2 — SOMATIC EXERCISE: THE QUADRANT
 
-**What is the shortest distance between your Here Now and your desired place?**
+**What is the shortest distance between your HereNow and your ThereNow?**
 
 ### PREPARING THE MAP
 
 Draw a cross on the floor or on paper. Four cardinal points: North, South, East, West.
 
-Charge each point with something meaningful to you — a word, an intention, an object, a stone, an element. There is no correct assignment. This map is yours.
+Charge each point with a possible answer or solution that you can think of. Ask your guides for assistance.
 
 *What did you place at each point?*
 
@@ -48,7 +48,7 @@ Charge each point with something meaningful to you — a word, an intention, an 
 
 Stand in the center of the cross. Close your eyes. Breathe until you feel the body still and present.
 
-Bring your desired place to mind — don't analyze it, just feel it. Let the body orient itself. The body is the pendulum.
+Bring your ThereNow to mind — don't analyze it, just feel it. Let the body orient itself. The body is the pendulum.
 
 Open your eyes. Where did you go?
 
@@ -80,11 +80,11 @@ Open your eyes. Where did you go?
 
 This is not planning. It is the first move.
 
-Roll the die. The number that comes up is your commitment for the week.
+Roll the dice. The number that comes up is your commitment for the week.
 
 *My number:* \_\_\_\_\_
 
-List that many concrete actions — conversations, gestures, decisions, small movements:
+List that many concrete actions — conversations, decisions, small movements:
 
 1\. \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -98,7 +98,7 @@ List that many concrete actions — conversations, gestures, decisions, small mo
 
 6\. \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-*Which one do you activate first?*
+*Which one will you activate first?*
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
