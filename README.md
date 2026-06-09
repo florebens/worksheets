@@ -6,8 +6,6 @@ A growing open-source collection of practices, exercises, and protocols for the 
 
 ## Library
 
-## Library
-
 - 🩸 **Wounded** - *the weary traveller who needs deep healing, restoration, comfort*
 - 🧪 **Rationalist** - *the curious and rigorous who will not settle for half-baked answers*
 - 🔍 **Seeker** - *the one who has peeped through the Veil and now can't unsee it*
