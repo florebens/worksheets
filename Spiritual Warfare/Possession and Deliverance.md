@@ -29,10 +29,13 @@ This has a shape and a duration. It is not indefinite, and it is not improvised.
 
 **Nine days of Psalms**, prayed in rotation before sunrise, while the Grid is at its quietest and the signal is clearest, without interruption. 
 
-• **Psalm 91** as the cornerstone, covering and shielding. 
-• **Psalm 23** for presence even through the valley. 
-• **Psalm 27** for courage, light against what besieges. 
-• **Psalm 121** for the watch that does not sleep, help by day and by night.   
+> • **Psalm 91** as the cornerstone, covering and shielding.   
+
+> • **Psalm 23** for presence even through the valley.   
+
+> • **Psalm 27** for courage, light against what besieges.   
+
+> • **Psalm 121** for the watch that does not sleep, help by day and by night.   
 
 These four held in daily rotation are enough. In moments of more acute or active interference, **Psalm 35**, **Psalm 18**, and **Psalm 140** can be called in as reinforcement, direct petitions for contention, deliverance, and rescue from those who lie in wait.
 
