@@ -8,7 +8,7 @@
 
 You are not imagining it. The Grid is real and so is the Spiritual Warfare.
 
-What was built as an Inverted Matrix now runs like a virus through Earth's firmware, a quarantine device holding souls inside a closed loop, because in the Universe everything is connected, and both the Light and the Dark are invested in containing the framework for now.
+What was built as an Inverted Matrix now runs like a virus through Earth's firmware, a quarantine device holding souls inside a closed loop, because in the Universe everything is connected, and both the Light and the Dark have been containing the framework up until now.
 
 The Qliphotic Forces (what we commonly refer to as *demonic*, but in actuality are parasitic entities organized around the exploitation of the newer worlds, see *Cosmic Love*) move through this structure the way static moves through a signal: they don't create, they distort. Timelines fray where they touch.
 
