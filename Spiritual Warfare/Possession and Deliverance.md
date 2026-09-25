@@ -1,6 +1,6 @@
 # Spiritual Warfare, Possession Attempts and Deliverance: a Practical Guide
 
-## Florencia Benson 
+## Florence Benson 
 ### *Shevirat, 2026*
 ----
 
