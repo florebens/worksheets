@@ -16,4 +16,4 @@ This work is licensed under [CC BY 4.0](https://creativecommons.org/licenses/by/
 
 [![CC BY 4.0](https://licensebuttons.net/l/by/4.0/88x31.png)](https://creativecommons.org/licenses/by/4.0/)
 
-By **Florencia Benson** — Spiritual Transhumanism | Crystalline Body Doula
+By **Florence Benson** — Shevirat
